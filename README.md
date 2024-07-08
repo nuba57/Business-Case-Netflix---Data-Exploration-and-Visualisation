@@ -41,7 +41,8 @@ Focusing on releasing high-quality content during the months of January, July, A
 Weekly Strategy
 
 The first week of each month can be designated as a "Featured Release Week," where the platform introduces a major TV show or movie. Subsequently, during the three-week period of reduced content additions, the platform can leverage this time to promote and highlight existing content
-3** **Age-Targeted Content ************
+
+3 **Age-Targeted Content****
 
 In India and Japan, where there is a high demand for teen-centric content, Netflix could partner with local production studios to develop original series and movies that resonate with the teenage audience.
 
